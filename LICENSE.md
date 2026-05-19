@@ -1,4 +1,4 @@
-# 
+# vip Bitdefender Total Security for PC plugins is the best Bitdefender Total Security for PC plugins with password-manager and anti-adware. Safe, reliable, and optimized for
 
 
 
